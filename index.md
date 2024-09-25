@@ -5,7 +5,7 @@
 Dynamique, motivée et dotée d'excellentes compétences rédactionnelles et en médias sociaux, je fait preuve de fiabilité dans l'accomplissement de mes différentes missions.
 
 ## Formation
-- **De 2022 à 2025:** Licence en Information-Communication, à l'Université Bordeaux Montaigne.
+- **2022 - 2025:** Licence en Information-Communication, à l'Université Bordeaux Montaigne.
 - **2021:** Baccalauréat général mention bien.
 
 ## Expériences professionnelles
